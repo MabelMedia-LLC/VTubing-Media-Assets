@@ -13,7 +13,7 @@
 #### Non-Acceptable Uses:
 - Gore, Violence
 - Excessive Swearing
-- Political Messages / Hate Speech (Don’t Make Her Say / Do Evil Things)
+- Political Messages / Hate Speech (Don’t Make Her Say / Do Evil Things) (Unless Referencing Streamed Views)
 - Stealing Of Art
 - Serious Depression / Suicide
 - Depictions As Male In Any Way
